@@ -1,6 +1,6 @@
 # David Padial
 
- (daviipadiall@gmail.com)
+ Contacto: (daviipadiall@gmail.com)
 
 ## Resumen personal
 
